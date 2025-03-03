@@ -15,5 +15,8 @@ Badminton
 Ulubione jedzenie:
 Lasagne, ramen
 
+Hobby:
+Escape roomy, rękodzieło, gry planszowe i komputerowe
+
 
 
