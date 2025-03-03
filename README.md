@@ -9,6 +9,9 @@ Ulubiona seria książek:
 Wiedźmin, Andrzej Sapkowski
 
 
+Ulubiony sport:
+Badminton
+
 
 
 
