@@ -12,6 +12,8 @@ Wiedźmin, Andrzej Sapkowski
 Ulubiony sport:
 Badminton
 
+Ulubione jedzenie:
+Lasagne, ramen
 
 
 
